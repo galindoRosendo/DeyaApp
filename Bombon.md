@@ -21,22 +21,23 @@ a lo largo de nuestra amistad para fortalecer lo que nos mantiene unidos y agrad
 TE AMO!!! y te amo mucho corazon. <3
 
 # Peliculas, frases y recuerdos para siempre
-Sin sacrificio no hay victoria
-Vivirias por mi?
-Tus amigos de la WWII
-El invierno se acerca
-Primera regla, no hablar del club de la pelea
-No meterse al ring sin saber boxear
-No se usan armas
-StackOverFlow
-La fuerza esta contigo
-Autobots reunance
-Que no te de miedo de soñar en grande
-Buena suerte 007
-Los modales hacen al hombre
-B-A-B-Y
-Un gran poder es una gran responsabilidad
-Le falta un peso
-Los machos tambien lloran
+* Sin sacrificio no hay victoria
+* Vivirias por mi?
+* Tus amigos de la WWII
+* El invierno se acerca
+* Primera regla, no hablar del club de la pelea
+* No meterse al ring sin saber boxear
+* No se usan armas
+* StackOverFlow
+* La fuerza esta contigo
+* Autobots reunance
+* Que no te de miedo de soñar en grande
+* Buena suerte 007
+* Los modales hacen al hombre
+* B-A-B-Y
+* Un gran poder es una gran responsabilidad
+* Le falta un peso
+* Los machos tambien lloran
+
 Y mas peliculas, series y otras cosas que vamos a ver
 
