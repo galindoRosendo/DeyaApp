@@ -1,57 +1,43 @@
-# DeyaApp
-Para las personas que han sacado lo mejor de mi.
+# Deyanira
 
-## Para Rosendo de Rosendo (8)...
+DeyaApp nace de los momentos que se comparten con la persona que mas quieres, cuando disfrutas cada minuto en compañia de esa persona que te complementa
+para hacer una mejor version de ti y te impulsa a crear, imaginar y hacer cosas que jamas soñaste.
 
-## Sentir con el corazon, pensar con el cerebro y hablar con la boca para escuchar con los oidos, razonar con la mente y actuar con buenas desiciones.
+Ver una pelicula puede ser algo que no todos disfrutan, pero nosotros si lo hacemos y son recuerdos que jamas se borraran de la mente, quedaran tatuados
+en el corazon y seran una alegria cuando vuelvan a la vida en una anecdota.
 
-### Sentir
+Gracias por estar siempre a mi lado, como amiga, como mejor amiga, como MAPS y la persona que ahora es mi compañera, confidente y uno de los seres
+humanos mas importantes, leales y reales que he tenido la dicha de conocer. Ahora te llamo novia, ayer eras mi amiga y mañana espero llamarte esposa. 
 
-Sentimiento se refiere tanto a un estado de ánimo como también a una emoción conceptualizada que determina el estado de ánimo. Por tanto, sentir es «estado del
-sujeto caracterizado por la impresión afectiva que le causa determinada persona, animal, cosa, recuerdo o situación en general»
+Te quiero, te amo y te valoro como lo que eres y siempre seras, una de las mejores desiciones que he tomado en mi vida y la razon de estar escribiendote
+para que al leer esto sepas que eres muy importante para mi.
 
-Por esta razon mi persona ahora siente la emocion de estar con la gente indicada para el crecimiento de mi corazon, mis emociones, la razon de sentir
-motivacion a realizar mis metas, sueños, objetivos y plan de vida.
+Tenemos diferencias y eso no representa una barrera, es mas una meta que hemos logrado alcanzar. Gracias por estar siempre a mi lado y recordarme tu
+cariño, lo que puedo hacer y lo que podemos hacer juntos.
 
-Gracias a mi familia
-* Mi papa el ser mas fuerte mentalmente y el mas sencible sentimentalmente.
-* Mi mama la fortaleza mas duradera de mi hogar.
-* Mi hermano el reflejo de mis mejores acciones y la nemesis de mis peores erroes.
-* Mi hermana la criatura que tras verme vencido una y otra vez siempre tiene esperanza de mis acciones.
-* Mis familiares de apellido que a pesar de no tenerlos siempre cerca, jamas se alejan y eso vale mas que el oro.
-* Mi novia, mi compañera, la persona que ha estado conmigo duante mis primeros pasos en la juventud y estara en mi corazon, recuerdos y palabras.
-* Mis amigos y amigas, personas que comparten gustos, aficiones, ideales, conocimiento y ganas de apreder eternamente.
-* Mis conocidos con quienes aprendo cosas que jamas llegare a ver si me encierro en una burbuja elitista.
-* Mis personas toxicas que me hacen ver que entre mas criticas algo solo proyectas carencia de actitud, tolerancia y paz.
-* Mi ser mas profundo, el individuo que ha crecido a pasos de gigante si lo comparo con el Rosendo de hace 7 años y el sujeto que jamas sera tan grande  como el de arriba.
+Te sigo y me sigues, somos felices y estamos viviendo una de las mejores etapas de nuestra vida, recorramos este sendero y continuemos lo que hemos hecho
+a lo largo de nuestra amistad para fortalecer lo que nos mantiene unidos y agradecidos de estar juntos.
 
-### Pensar
+TE AMO!!! y te amo mucho corazon. <3
 
-El pensamiento es la actividad y creación de la mente; dícese de todo aquello que es traído a existencia mediante la actividad del intelecto.
+# Peliculas, frases y recuerdos para siempre
+* Sin sacrificio no hay victoria
+* Vivirias por mi?
+* Tus amigos de la WWII
+* El invierno se acerca
+* Primera regla, no hablar del club de la pelea
+* No meterse al ring sin saber boxear
+* No se usan armas
+* StackOverFlow
+* La fuerza esta contigo
+* Autobots reunance
+* Que no te de miedo de soñar en grande
+* Buena suerte 007
+* Los modales hacen al hombre
+* B-A-B-Y
+* Un gran poder es una gran responsabilidad
+* Le falta un peso
+* Los machos tambien lloran
 
-Con esto vemos que pensar no solo es cuestion de tener razonamiento, pensar involucra inteligencia y mi ser  la representa en las palabras de un ex
-catedratico que una vez dijo "No es vergüenza no saber, sino saber que no sabes y no querer saber" estas palabras significan el camino del eterno
-aprendiz y perpetuo novato, la ventaja mas grande que puedo tener entre tantos sujetos competentes, habilidosos, valiosos e inteligentes.
-
-El camino del eterno aprendis y perpetuo novato es un tema que me gusta ver a detalle cuando me veo hoy y comparo intelectual, profesional y
-academicamente. Este tema lo plasmare en un futuro, cuando mis metas tengan una huella firme y me orgullo mencionar lo que con ayuda de mis familiares, amigos,
-compañeros, maestros, nemesis y todos aquellos que vieron algo bueno y malo en mi.
-Voltear a verlos y decir con orgullo que algo cambiaron en mi, bueno y malo, ignorancia y conocimiento, amor y odio, fuerza y debilidad.
-
-### Hablar
-
-El habla se puede referir propiamente a un acto de habla o a la realización de una serie de formas lingüísticas por parte de un hablante.
-
-Para hablar se necesitan organos, lengua, labios, cuerdas vocales todo lo que el ser humano tiene desde que nace. Para comunicar una idea se necesita
-sentirla en lo mas profundo de nuestro ser, que impulse nuestro intelecto a pensar con detenimiento cada una de nuestras decisiones, pros y contras para
-lograr hablar y sembrar nuestras mejores ideas, sueños y deseos de convertir en en el ave fenix eso que alguien catalogo como tonto, imperfecto o
-inutil. 
-A pesar de todos tener los mismos organos, no todos sabemos escuchar y no todos sabemos hablar.
-
-### Escuchar
-
-### Razonar
-
-### Actuar
-
+Y mas peliculas, series y otras cosas que vamos a ver
 
