@@ -2,7 +2,7 @@
 ## **R.·. L.·. S.·. Redencion N° 12**
 <div style="text-align: right"> Nuevo Laredo, Tamps. Viernes 29 de Junio 2018 </div>
 
-## **La Masonería en Mexico**
+### **La Masonería en Mexico**
 
 La masonería en México surge oficialmente con la independencia del Primer Imperio mexicano, en 1821. El rito abrumadoramente mayoritario es hoy en día el Rito Escocés Antiguo y Aceptado. También existen el Rito Nacional Mexicano y el Rito de York. Y con ellos conviven, de modo muy minoritario, numerosos otros ritos, originados sobre todo a partir del siglo XXI. La masonería mexicana incluye hoy en día logias tanto masculinas (mayoritarias, aún) como femeninas y mixtas.
 
