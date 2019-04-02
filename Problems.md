@@ -8,6 +8,16 @@ Los problemas surgen de la ignorancia, con el dialogo; un par de opiniones conve
 
 ### Palabras clave
 
+**Esotericas**
+- ciencia
+- conocimiento para evolucionar 
+- valores y principios morales
+- perseverancia en las acciones
+- ser supremo
+- humanos
+- mason mismo
+
+**Profanas**
 - Problemas
 - Ignorancia
 - Puntos de vista
