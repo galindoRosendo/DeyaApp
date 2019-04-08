@@ -10,7 +10,18 @@ Los problemas surgen de la ignorancia, con el dialogo; un par de opiniones conve
 
 
 **Primera cámara**
+
 La moral masonica
+
+- Tipos de moral
+- moral propia 
+- moral privada
+- moral social
+- porque todas son importantes 
+
+**Segunda Camara**
+
+Las ciencias del compañero 
 
 **Esotericas**
 - ciencia
