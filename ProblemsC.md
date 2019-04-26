@@ -2,13 +2,14 @@
 
 ## **R.·. L.·. S.·. Redencion N° 12**
 
-### Como solucionar un problema masonicamente (C.·. M.·. )
+### Como solucionar un problema masonicamente (C.·. M.·.)
 
 Los problemas surgen de la ignorancia, con el dialogo; un par de opiniones convergen simbioticamente; esto hace que las verdaderas necesidades sean puestas a discusión y se accione de manera agilizada.
 
 #### Las ciencias del compañero
 
-* ciencia (conocer el método cientifico)
+* ciencia (conocer el método cientifico): Del lat. scientia.
+  * f. Conjunto de conocimientos obtenidos mediante la observación y el razonamiento, sistemáticamente estructurados y de los que se deducen principios y leyes generales con capacidad predictiva y comprobables experimentalmente.
 * conocimiento para evolucionar (entre mas información tenemos, estamos mejor preparados)
 * valores y principios morales ( la moral masonica es nuestra forma de darnos a conocer)
 * perseverancia en las acciones (tenemos que ser congruentes con lo que decimos y hacemos)
@@ -19,3 +20,5 @@ Los problemas surgen de la ignorancia, con el dialogo; un par de opiniones conve
 #### Conclusiones
 
 Resumen verbal.
+
+Rosendo Guadalupe Galindo Lopez C.·. M.·.

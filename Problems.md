@@ -2,7 +2,7 @@
 
 ## **R.·. L.·. S.·. Redencion N° 12**
 
-### Como solucionar un problema masonicamente (A.·. M.·. )
+### Como solucionar un problema masonicamente (A.·. M.·.)
 
 Los problemas surgen de la ignorancia, con el dialogo; un par de opiniones convergen simbioticamente; esto hace que las verdaderas necesidades sean puestas a discusión y se accione de manera agilizada.
 
